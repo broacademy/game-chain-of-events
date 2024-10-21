@@ -1,5 +1,5 @@
 0. How did it start? 
-1. Who was involved?
+donald trump
 2. With whom?
 3. Where?
 4. When?
