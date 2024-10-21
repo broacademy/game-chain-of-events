@@ -9,6 +9,6 @@
 8. What were they wearing?
 9. They felt pretty nice.
 10. What happened next?
-11. Who saw them?
+11. President of the US.
 12. What was the consequence?
 13. How did it end?
