@@ -6,7 +6,7 @@
 5. Explored the ocean
 6. Why did they do it?
 7. What did they say?
-8. What were they wearing?
+8. What were they wearing? socks, bikini, gloves
 9. How did they feel?
 10. What happened next?
 11. Who saw them?
