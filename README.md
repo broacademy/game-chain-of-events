@@ -5,7 +5,7 @@
 4. It happened on a chilly autumn evening, just as the last leaf fell from the old oak tree. The clock struck midnight, and the streetlamps flickered ominously, as if they knew something strange was about to unfold. The clouds suddenly parted, and for a brief moment, the stars aligned in the shape of a giant cat. That was the moment when everything changed.
 5. Explored the ocean
 6. Because they wanted peace of mind.
-7. What did they say?
+7. Oh, it was an unforgettable trip. Let's do it again.
 8. What were they wearing?
 9. They felt pretty nice.
 10. What happened next?
