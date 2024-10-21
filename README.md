@@ -1,4 +1,4 @@
-0. How did it start? 
+0. It was a long windy winter just before Christmas
 1. Who was involved?
 2. With whom?
 3. Where?
