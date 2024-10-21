@@ -1,6 +1,6 @@
 1. Who was involved?
 2. With whom?
-3. It was a long time ago, in deep space, somewhere on the edge of the universe, sitting on a chair, drinking a cosmic cocktail made from stars.
+3. Where?
 4. When?
 5. What did they do? 
 6. Why did they do it?
