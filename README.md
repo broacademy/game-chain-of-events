@@ -10,5 +10,5 @@
 9. They felt pretty nice.
 10. What happened next?
 11. President of the US.
-12. What was the consequence?
+12. A huge explosion emerged
 13. How did it end?
