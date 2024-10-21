@@ -8,7 +8,7 @@
 7. What did they say?
 8. What were they wearing?
 9. How did they feel?
-10. What happened next?
+10. Just go it!
 11. Who saw them?
 12. What was the consequence?
 13. How did it end?
