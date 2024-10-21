@@ -1,3 +1,4 @@
+0. How did it start? 
 1. Who was involved?
 2. With whom?
 3. Where?
