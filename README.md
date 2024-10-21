@@ -1,5 +1,5 @@
-0. How did it start? 
-donald trump
+0. It was a long windy winter just before Christmas
+1.donald trump
 2. With whom?
 3. Where?
 4. When?
