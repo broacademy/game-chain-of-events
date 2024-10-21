@@ -6,7 +6,7 @@
 5. Explored the ocean
 6. Because they wanted peace of mind.
 7. Oh, it was an unforgettable trip. Let's do it again.
-8. What were they wearing?
+8. socks, bikini, gloves
 9. They felt pretty nice.
 10. Just go it!
 11. President of the US.
