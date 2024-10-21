@@ -8,7 +8,8 @@
 7. Oh, it was an unforgettable trip. Let's do it again.
 8. What were they wearing?
 9. They felt pretty nice.
-10. What happened next?
+10. Just go it!
 11. President of the US.
 12. A huge explosion emerged
+
 13. How did it end?
